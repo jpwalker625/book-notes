@@ -101,6 +101,7 @@ Practice is about clarifying how emotion thought melts.
 If you think you have cutoff illusory thought, the emotion thought will come up again, as though you have cut the stem of a blade of grass or trunk of a tree and left the root alive. -p71
 
 <mark>If we're in a close relationship, from time to time we're going to be in pain because no relationship will ever suit us completely.</mark> There's no one we will ever live with who will please us in all the ways we want to be pleased. Always we must practice getting closer and closer to experiencing our pain, our disappointment, our shattered hopes and dreams. When we experience the suffering directly, the melting of the false emotion can begin and true compassion can emerge.
+
 ---
 # Relationships
 ## The Search
