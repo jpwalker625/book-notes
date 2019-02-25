@@ -2,13 +2,15 @@
 # Everyday Zen
 
 Date Read: January 2019
+Rating: 10/10
 
 --- 
-
+# I Beginnings
 We all hope to change, to get somewhere! That in itself is the basic fallacy. But just contemplating this desire begins to clarify it, and the practice basis of your life begins to alter as we do so. We begin to comprehend that our frantic desire to get better, to "get somewhere" is illusion itself, and the source of suffering. -p24
 
 Practice is about breaking our exclusive identification with ourselves. Purifying the mind. Stripping away that which keeps a person from functioning best. 
 
+# II Practice
 ## The Fire of Attention
 Hard coal - anthracite - burns clean. This is what we strive to "burn" our attention like.
 
@@ -49,7 +51,7 @@ We must, however, have some degree of happiness and stability to engage in serio
 A life of joy is not in seeking happiness, but in experiencing and simply being the circumstances of our life as they are; not in fulfilling personal wants, but in fulfilling the needs of life; not in avoiding pain, but in being pain when it is necessary to do so. -p.45
 
 ---
-# Feelings
+# III Feelings
 ## A Bigger Container
 
 "The gateless gate"  
@@ -103,6 +105,64 @@ If you think you have cutoff illusory thought, the emotion thought will come up 
 <mark>If we're in a close relationship, from time to time we're going to be in pain because no relationship will ever suit us completely.</mark> There's no one we will ever live with who will please us in all the ways we want to be pleased. Always we must practice getting closer and closer to experiencing our pain, our disappointment, our shattered hopes and dreams. When we experience the suffering directly, the melting of the false emotion can begin and true compassion can emerge.
 
 ---
-# Relationships
+# IV Relationships
 ## The Search
+We're all looking for an ideal life. But we have to know where to look, to know what it means to look. Underneath all the looking/searching is distress, unease. These are the motivating factors of our searching.
+
+Nothing is perfect so all of our searching is ultimately bound to end in disappointment.
+
+Desires are inexhaustible. But you won't exhaust desires by searching; you will exhaust them by experiencing that which underlies them. 
+
+Two questions: Do I understand the necessity for practice? Do I know what practice is?
+
+Most people, when they get angry, act out of their thoughts; and so they nearly always have to return later and go into the experience of the upset because they're not skilled enough to do that at the time they feel threatened. -p81
+
+## Practicing with Relationships
+Action based on confusion and ignorance leads directly to more confusion, upset, and ignorance -p84
+
+This life of ignorance is linear: past, present, and future. It is a hostile wold created by our own thoughts. And when we try to find these thoughts we dwell upon, we find it impossible because they reside in the past. They no longer exist, they are ungraspable. 
+
+TV channel analogy - he/she is a channel 4 person. I'm calm/comfortable with channel 4. But then at some point, our partner becomes a different channel and we're not used to it. We don't like it. So we find another channel 4. But we don't ask ourselves who changed the channel in the first place. What is the source?
+
+Sometimes people live out a lifetime and never meet. As long as our buttons are pushed, we have a great chance to learn and grow.
+
+For those who practice paiently, there will be more and more a taste of the joy in a relationship in which no self meets no self. And when it happens, I don't even know if we can use the word "relationship". Who is there to relate to whom?
+
+## Experiencig & Behavior
+
+We know, to a certain extent that our behavior and our experiencing are connected. However, we constantly judge other people by their behavior without knowing their experience.
+
+Who I am is simply experiencing itself, forever unknown. -p91
+
+Behavior then, is what we observe. 
+
+When we live a life that is not dominated by personal opinion but is instead pure experiencing, then we begin to take care of everyone; ourselves, and others. -p92
+
+<mark>All of our practice is to return ourselves to pure experiencing.</mark>
+
+## Relationships Don't Work
+
+In everything we do in relation to other people, there is a subtle or not so subtle expectation. We all want something from the people we are in relationship to.
+
+<mark>Love expects nothing.</mark>
+
+A good relationship gives life more power. It has nothing to do with what you or your partner wants. 
+
+Practice, like being in a relationship, is to be selfless. This is what it means to be strong. And strength requires flexibility.
+
+## Relationship Is Not Each Other
+
+The true self knows no separation. It is nothing at all, yet it is the only master.
+
+When we are nobody, no self, the right action is obvious.
+
+Your life is none of your business.
+
+The true self is something like instinct. It serves not to benefit myself, or someone else, but life. 
+
+Practice brings us into that undramatic space where things are just as they are - just functioning.
+
+# V Suffering
+
+
 
